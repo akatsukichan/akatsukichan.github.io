@@ -1,2 +1,2 @@
-# akatsukichan.github.io
-ASWASWASW
+# Hacked by ./AkatsuChan  
+Security Ghost
